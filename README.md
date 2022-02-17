@@ -1,5 +1,5 @@
 # EDUTECH
-## COLÉGIO ESTADUAL ESTADUAL SAGRADA FAMÍLIA
+## COLÉGIO ESTADUAL SAGRADA FAMÍLIA
 ### ANNELISE MENDES SIMON
 - 👋 Olá, meu username é: @AnneliseSimon
 - 👍 Meu email é simon.annelise@escola.pr.gov.br
